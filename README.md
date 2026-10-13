@@ -1,0 +1,2 @@
+# premium-pique-tortoise-001-piqu--tortoiseshell-inlay-go
+Tired of paying hundreds for vintage tortoiseshell accessories that chip and fade? This workshop teaches you to craft a durable, modern gold pin with authentic inlay patterns—no expensive materials or marquetry skills required.  This workshop solves the pain point of wanting luxury tortoiseshell designs without the cost or fragility. You'll learn a
